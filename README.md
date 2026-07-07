@@ -1,6 +1,6 @@
 
 # 💫 About Me:
-Love F1 and enjoy karting. Love to play racing games and FPS games. Enjoy drawing and robotics<br> 
+Love F1 and enjoy karting. Love to play racing games and FPS games. Enjoy drawing and robotics. Always looking forward to learn<br> 
 
 
 # 💻 Tech Stack:
